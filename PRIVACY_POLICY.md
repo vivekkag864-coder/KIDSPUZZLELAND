@@ -111,6 +111,6 @@ We may update this Privacy Policy from time to time. When we do, we will revise 
 If you have questions, concerns, or requests related to this Privacy Policy, please contact:
 
 Kids Puzzle Land
-Email: privacy@kidspuzzleland.example
+Email: vivekkag864@gmail.com
 
 This document is intended to provide a clear and family-friendly explanation of how Kids Puzzle Land handles privacy. It is not legal advice, and the company may update the policy to reflect changes in products, laws, or business practices.
